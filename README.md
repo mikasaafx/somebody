@@ -1,1 +1,0 @@
-# mikasaa.github.io/somebody/
